@@ -1,0 +1,1 @@
+# Bot-Bling-Adiciona-Categoria
